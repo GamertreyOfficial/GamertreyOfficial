@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GamertreyOfficial
-- 👀 I’m interested in making games and be famous
+- 👀 I’m interested in making games
 - 🌱 I’m currently learning to program better
 - 💞️ I’m looking to collaborate on! nothing...
 - 📫 How to reach me, well, wont tell for now!
